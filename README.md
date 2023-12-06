@@ -1,2 +1,3 @@
 # FFXI
- Addons
+Seizan from Asura former Hades and Cerberus^^
+ 
